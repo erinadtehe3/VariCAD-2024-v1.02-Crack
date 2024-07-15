@@ -1,0 +1,1 @@
+# VariCAD-2024-v1.02-Crack
